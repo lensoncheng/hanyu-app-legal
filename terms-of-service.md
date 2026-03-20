@@ -85,7 +85,7 @@ These Terms of Service shall be governed by and construed in accordance with app
 
 If you have any questions about these Terms of Service, please contact us at:
 
-**Email:** support@hanyu-app.com
+**Email:** chengchenglonglong@gmail.com
 
 ---
 
